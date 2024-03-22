@@ -71,4 +71,6 @@ In the heart of the maze, where the digital storms are born,
 You're a unicorn 🦄, so you better perform!  
 Full-stack developer who grew up in the corn 🌽,  
 Crafting the future, from night until morn.
+
+
 #cybersecurity #fullstackdevelopment #systemsengineering #itsupport #RapGod
