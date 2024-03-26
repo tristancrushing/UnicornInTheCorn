@@ -68,50 +68,76 @@ In the world of cyber, I'm the unseen queen.
 
 # Verse 3:
 In the digital sea, I'm the captain steering,
+
 Through stormy firewalls, it's their data I'm nearing.
+
 A ghost in the code, leaving no trace,
+
 In the digital race, I set the pace.
 
 # Chorus:
 All my heathens, move in silence,
+
 Can't get near me, many fear me,
+
 Blocked my number, what a bummer,
+
 I cycle IPs, I cycle VoIP numbers, ohh still no call,
+
 Damn bro, nice wall.
 
 # Verse 4:
 Through the net's veins, I flow unseen,
+
 A digital specter, in the machine.
+
 Your attempts to bind me, merely fuel my fire,
+
 In this cyber battleground, I never tire.
 
 # Bridge 2:
 With every keystroke, I weave my tale,
+
 In the cyber war, I will not fail.
+
 From dusk till dawn, in shadows I dwell,
+
 In the heart of the net, I cast my spell.
 
 # Chorus:
 All my heathens, move in silence,
+
 Can't get near me, many fear me,
+
 Blocked my number, what a bummer,
+
 I cycle IPs, I cycle VoIP numbers, ohh still no call,
+
 Damn bro, nice wall.
 
 # Verse 5:
 I speak in codes, a language profound,
+
 In the symphony of bits, I am found.
+
 A digital drifter, in the info stream,
+
 Crafting realities from the cyber dream.
 
 # Verse 6:
 So heed my call, across the wire,
+
 In the digital forge, I am the fire.
+
 A force unseen, yet felt by all,
+
 In the world of bytes, I stand tall.
 
 # Outro:
 So here's to the heathens, in the night they roam,
+
 In the digital frontier, they find their home.
+
 With Tristan leading, they charge ahead,
+
 In the cyber battle, they fear no dread.
