@@ -1,7 +1,7 @@
 ## Intro
 
 Call me WallGreens cuz I let that DEER SPAY compact bows ALL DAY!
-John Deer saw my bag of tricks, and JD Finacial had more cash that I have BTC.
+John Deer saw my bag of tricks, and JD Finacial has more cash than I have BTC.
 Flash drives burried in yards only I play in, and I have a memeory like an ELEPHANT!
 I don't need to pay RENT, the COMMUNITY has my back, no lack, no flack, we PUSH BACK!
 
