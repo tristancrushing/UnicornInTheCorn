@@ -1,0 +1,3 @@
+This bitch wants to cop pills, while I’m on the street laying bills, she’ll stay in bed all day, always som excuse not to come out and play, she might as well maoe her bed, cuz shes done, she can sit on a shed, like all my other antique tractors.
+She can rust and collect dust, unril she appologizes she may want to move home with her MOM, at least they have a fence there that may stop TOM Brady...
+But ain’t nothing stopping math wiz shady!
