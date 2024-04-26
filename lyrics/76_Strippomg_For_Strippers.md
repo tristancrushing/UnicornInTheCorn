@@ -7,3 +7,6 @@ Call me Kappa, while I get my clapper!
 Call ke Rino, I’m that dino!
 Champion of Champagne 🍾 Rooms in Champaign!
 Damn do those girls give good 🧠
+
+Poles go Rolly Polly, when they know T is strolling! 
+Tip-toeing into the lap dance holy.
