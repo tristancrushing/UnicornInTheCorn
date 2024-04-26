@@ -10,3 +10,4 @@ Damn do those girls give good 🧠
 
 Poles go Rolly Polly, when they know T is strolling! 
 Tip-toeing into the lap dance holy.
+Vanilla Unicorns Love me, they really like it when my Pole Gets Shovey! 
